@@ -1,2 +1,2 @@
-# turognakopre.github.oi
+# turognakopre.github.io
 Natutulog Everyday
