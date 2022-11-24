@@ -10,7 +10,7 @@ Natutulog Everyday while playing UwU
 # 3. Clash of Clans
 ![alt text](https://gamingonphone.com/wp-content/uploads/2021/03/91duOGX58CL-1.jpg)
 # 4. Geometry Dash Sub Zero
-![alt text](https://static.wikia.nocookie.net/logopedia/images/0/01/GeometryDashSubZero.png/revision/latest?cb=20211123133320)
+![alt text](https://is4-ssl.mzstatic.com/image/thumb/Purple112/v4/22/e3/fa/22e3fa03-9adc-1869-c30d-47fe0f5250e9/AppIcon-0-0-1x_U007emarketing-0-0-0-10-0-0-sRGB-0-0-0-GLES2_U002c0-512MB-85-220-0-0.png/1200x630wa.png)
 # 5. Point Blank  (My Favorite)
 ![alt text](https://pointblank.zepetto.com/images/pbph_verkr.jpg)
 
