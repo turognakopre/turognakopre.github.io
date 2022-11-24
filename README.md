@@ -13,3 +13,6 @@ Natutulog Everyday while playing UwU
 ![alt text](https://static.wikia.nocookie.net/logopedia/images/0/01/GeometryDashSubZero.png/revision/latest?cb=20211123133320)
 # 5. Point Blank  (My Favorite)
 ![alt text](https://pointblank.zepetto.com/images/pbph_verkr.jpg)
+
+# Favorite Clips in Call Of Duty Mobile
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UkcgmL8B91c" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
